@@ -43,7 +43,7 @@
 ## 📬 Let's Connect
 
 - 🐦 [Twitter](https://twitter.com/AHMEDME63458382)
-- 💼 [LinkedIn](https://www.linkedin.com/in/ahmed-waheed1)
+- 💼 [LinkedIn](https://www.linkedin.com/in/ahmed-waheed11)
 - 💻 [GitHub](https://github.com/ahmed-waheed1)
 
 ---
